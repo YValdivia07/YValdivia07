@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @YValdivia07
-- 👀 I’m interested in ...Musik hadstyle and programming..
+- 👀 I’m interested in ...Musik Hardstyle and programming..
 - 🌱 I’m currently learning ...Ruby on Rails..
 - 💞️ I’m looking to collaborate on ...what you can, to continue learning.. XD
 - 📫 How to reach me ... yenifervaldivia.hd@gmail.com
